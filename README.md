@@ -37,7 +37,7 @@ for this purpose.
 ![361131265-c1e506a7-8d7e-43c8-a1e7-20adb8b0bb13](https://github.com/user-attachments/assets/cc864a3e-cf5a-4d68-837b-2d320b03bcd3)
 
 
-![WhatsApp Image 2024-08-28 at 19 41 39_74a0cfe6](https://github.com/user-attachments/assets/5a70ed0c-fba5-4001-a588-55c90ab6486d)
+![361131270-50f5ab5e-77ed-4937-ade2-50ac84f2c9d6](https://github.com/user-attachments/assets/50ea8032-3aeb-418e-809f-5c78b06752da)
 
 
 ![361131325-2fb9be97-24ac-46a3-9755-67dc5117b046](https://github.com/user-attachments/assets/156de7f4-20b5-4189-9cec-856568d0fe4f)
